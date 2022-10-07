@@ -1,0 +1,1 @@
+Mesmo projeto Trocas Plantao v3 mas paralelo no note work
